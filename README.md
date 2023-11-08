@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **dhananjaykumar137c@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OtjzJZ3yszcYiaWoMAFLzQQOEQ_faomw/view?usp=drive_link](https://drive.google.com/file/d/1I7P1ZN2a0UEIuWT0zIp9VpcjGdju-t6V/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1OtjzJZ3yszcYiaWoMAFLzQQOEQ_faomw/view?usp=drive_link](https://drive.google.com/file/d/1T4wZJPLjHf2lp22xo6pLnB5jdorI962-/view?usp=drive_link)
 
 - ⚡ Fun fact **I can make you laugh :)**
 
